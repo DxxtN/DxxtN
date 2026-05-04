@@ -56,5 +56,5 @@ Here are some ideas to get you started:
 ---
 
 ### My Contact
-Linkedin : [linkedin.com/in/nutnaree-suktad-a09942359](https://www.linkedin.com/in/nutnaree-suktad-a09942359/)
-Mail : nutnaree.st@gmail.com
+- Linkedin : [linkedin.com/in/nutnaree-suktad-a09942359](https://www.linkedin.com/in/nutnaree-suktad-a09942359/)
+- Mail : nutnaree.st@gmail.com
